@@ -1,3 +1,5 @@
+🌍 LoreOfLife
+
 De la primaire au lycée j'ai étudié l'Histoire. Pendant 12 ans. 
 Celle du monde en général mais de la France particulièrement. 
 Celle définie par des dates à retenir, des points vus rarement remit en question. 
